@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...coding, hacking, artificial intelligence
 - 🌱 I’m currently learning ... b tech
 - 💞️ I’m looking to collaborate on ... web development, hacking skills, ai tools or apps
-- 📫 How to reach me ...
+- 📫 How to reach me ...shuklagovind2580@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...teamwork
 
